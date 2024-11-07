@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cats
 - 🌱 I’m currently learning ... about cats
 - 💞️ I’m looking to collaborate on ... cats
-- 📫 How to reach me ... by my cate
+- 📫 How to reach me ... by my cat
 - 😄 Pronouns: ... c/a//t
 - ⚡ Fun fact: ... I dislike cats
 
